@@ -1,2 +1,2 @@
-# meva
-www.mevacommodities.co.za
+# gcinumzigroup
+www.gcinumzigroup.co.za
